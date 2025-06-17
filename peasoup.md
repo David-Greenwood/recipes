@@ -8,3 +8,8 @@ Salt and fresh ground lack pepper
 1 tbsp Sour cream or creeme fraiche
 
 #Instructions
+Put all ingreidents other than mint leaves and sour cream to sup machine and run on "smooth".
+
+Add sour cream and mint leaves and blend for 30s.
+
+Serve with a trickle of olive oil.
