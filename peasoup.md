@@ -1,7 +1,6 @@
-#Ingredients
+Ingredients
 600g fresh or frozen peas (15 p)
 1.2 l vegetable or ham stock (30 p)
-<<<<<<< HEAD
 2 medium potato (10 p)
 2 onion (5 p)
 10g fresh mint leaves (10 p)
